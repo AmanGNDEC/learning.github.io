@@ -8,3 +8,10 @@ Then our NSET director told us about the illustrious history of this institution
 
 Then our second guest of honor, **the ADGP officer**, shared many valuable stories about how God rewards our good deeds and punishes us for our bad deeds. He told us how God tests us in many phases of our lives. He spoke for about an hour and a half without any preparation, which is incredible. He could speak for the whole day effortlessly; his speaking skills are incredible.
 In the end, I received countless lessons that will always help me in my life.
+
+### Day 2:-
+On this day, new opportunities arose for the students, thanks to **Dr. Arvind Dhingra**. He asked for eleven boys and eleven girls to come on stage for a game where the girls' and boys' teams had to compete against each other. The boys' team won the game. Afterward, he asked every participant to introduce themselves to all the students.
+
+Then, **Dr. H.S. Rai**, the Controller of Examinations, spoke. His perspective on examinations was fascinating, seeing them as opportunities to shine.Unexpectedly, **Dr. H.S. Rai** asked for 10 students to work with him – not for him. I felt it was divine intervention when I was selected to be part of this group, which eventually grew to 50 members. Starting from the second day of college, we began learning the latest technologies, an opportunity rarely found elsewhere.
+
+### Day 3:-
